@@ -1,7 +1,7 @@
 # political-economy-basics
 
 **There is just so much suffering in the world that don't need to exist, 
-In this repo, I am writing about how can our miserable life be  made better, ways to do this 
+   In this repo, I am writing about how can our miserable life be  made better, ways to do this 
 I want to explain how everything happens, 
 how our tendencies and inclication to do something but not other form,
 What is our origin, we start by seeing from the current moment and logically connect the entire way of scientific thinking and spiritual thinking 
