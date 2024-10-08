@@ -3,7 +3,7 @@
 **There is just so much suffering in the world that don't need to exist, <br>
 In this repo, I am writing about how can our miserable life be  made better, ways to do this <br>
 I want to explain how everything happens, <br>
-how our tendencies and inclication to do something but not other form,<br>
+how our tendencies and inclinations to do something but not other form,<br>
 What is our origin, we start by seeing from the current moment and logically connect the entire way of scientific thinking and spiritual thinking <br>
 staring from orgin of life , to the  experimentally most varified theory of physics, <br>
 ,we also tackle the main question, which is how do we live  right now <br>
