@@ -1,6 +1,7 @@
 # Learning about politics is necessary 
 Lot of smart people who have real life experience, like scientist and researcher directly working on soical problem, social aid poeple, ngo, 
-charites and trust
+charites and trust,
+I would argue even the religious organisisation, whoever can engage the public should join politics 
 these are the poeple best suited to do politics, as they are smart and know how  to communicate poeple  in language 
 ## reasons 
 ### politics is everywhere, it influence life almost everyday
