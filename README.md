@@ -3,7 +3,7 @@
 **life is just too mysterious, ideally writing slience would have been appropriate<br>
 In this repo, I am writing about how can I see life as it is,<br>
 I want to explain how everything happens <br>
-how our tendencies and inclinations to do something but not other form,<br>
+how our tendencies and inclinations to do something but not otherthings, form,<br>
 What is our origin, we start by seeing from the current moment and ,<br>
 logically connect the entire way of scientific thinking and spiritual thinking <br>
 staring from orgin of life , to the  experimentally most varified theory of physics, <br>
